@@ -1,0 +1,2 @@
+# aqsha_aribsya_lukman_d0221042_c
+semangat_coding
